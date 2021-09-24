@@ -1,1 +1,1 @@
-lolzks say hi!
+hi!
