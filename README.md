@@ -1,1 +1,1 @@
-# lolzks.github.io
+lolzks say hi!
